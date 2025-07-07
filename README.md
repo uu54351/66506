@@ -20,4 +20,4 @@
 
 如果你正在寻找一个真正免费、播放稳定、内容丰富的日本AV网站，欢迎收藏本站。我们将不断更新、持续优化，只为带给你更加便捷、清晰、安全的观影体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/uu54351/66506 ）</span>
